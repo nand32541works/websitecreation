@@ -1,3 +1,3 @@
 # websitecreation
 
-![Screenshot (962)](https://github.com/user-attachments/assets/c93abc29-5b86-4aff-8c9d-b4cbb78e53d6)
+![image](https://github.com/user-attachments/assets/3f83ec6c-d4d7-487a-bf43-45839a9848e1)
